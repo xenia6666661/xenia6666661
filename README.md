@@ -4,8 +4,6 @@
 - 💞️ I’m looking to collaborate on learning programming and leetcode~ ：）
 - 📫 How to reach me :ixenia869@gmail.com <<---this is my google mail account!/ my snapchat is xenia6666661~
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I live in China and I am 17 now(just in senior high) Moreover,I am a game lover,if you like we can talk about games and other related things like ACG and so on.
-  
 
 <!---
 xenia6666661/xenia6666661 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
